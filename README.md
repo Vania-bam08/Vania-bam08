@@ -1,9 +1,9 @@
 ## Hola, soy Vania 😊✨
 Hola! soy nueva aquí, quiero aprender a programar e IA para elaborar proyectos que ayuden a la sociedad :)
 ## Sobre mi
-- 🏫 Estoy en pre-promo
+- 🏫 Estoy en pre-promo, sí, tengo 16 añitos ✌
 - 🍃 Actualmente formo parte del Club de Chicas Programadoras (yei!🎉)
-- 💬 Pueden encontrarme instagram como [oliver_snider_](https://www.instagram.com/oliver_snider_?igsh=MjBlMnJ2M2oyaTU5)
+- 💬 Pueden encontrarme en instagram como [oliver_snider_](https://www.instagram.com/oliver_snider_?igsh=MjBlMnJ2M2oyaTU5)
 - ⚡ Mis hobbies son: prácticar esgrima 🗡, danza contemporánea 🤸‍♀️ y escuchar músiquita 🎧
 - 🐼 Me gustan mucho los animales
 - Una ratita bailando breakdance porque sí :D
