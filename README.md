@@ -1,5 +1,5 @@
 ## Hola, soy Vania 😊✨
-Hola! soy nueva aquí, quiero aprender a programar e IA para hacer proyectos que ayuden a la sociedad :)
+Hola! soy nueva aquí, quiero aprender a programar e IA para elaborar proyectos que ayuden a la sociedad :)
 ## Sobre mi
 - 🏫 Estoy en pre-promo
 - 🍃 Actualmente formo parte del Club de Chicas Programadoras (yei!🎉)
