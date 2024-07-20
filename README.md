@@ -1,16 +1,11 @@
-## Hola, soy Vania https://i.pinimg.com/originals/4c/4b/c9/4c4bc9af912f572f83105594ff7a3498.gif
+## Hola, soy Vania 😊✨
+Hola! soy nueva aquí, quiero aprender a programar e IA para hacer proyectos que ayuden a la sociedad :)
+## Sobre mi
+- 🏫 Estoy en pre-promo
+- 🍃 Actualmente formo parte del Club de Chicas Programadoras (yei!🎉)
+- 💬 Pueden encontrarme instagram como [oliver_snider_](https://www.instagram.com/oliver_snider_?igsh=MjBlMnJ2M2oyaTU5)
+- ⚡ Mis hobbies son: prácticar esgrima 🗡, danza contemporánea 🤸‍♀️ y escuchar músiquita 🎧
+- 🐼 Me gustan mucho los animales
+- Una ratita bailando breakdance porque sí :D
+- ![rat-breakdance](https://github.com/user-attachments/assets/297bf693-9c5a-402f-9d19-320b67378d2c)
 
-
-
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
